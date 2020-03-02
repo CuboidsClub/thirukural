@@ -1,0 +1,2 @@
+# thirukural
+Daily Thirukural Quotes
